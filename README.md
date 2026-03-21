@@ -1,7 +1,7 @@
 ![1730591356215248616197965875583](https://github.com/user-attachments/assets/459d06cf-bafb-42f9-ad86-0c6af0ec3a46)
 Hiya! I'm Link, if you're here from ponytown please read byi!
 
-21 years old ♒ Feb 2nd ♡
+22 years old ♒ Feb 2nd ♡
 
 I have social and generalized anxiety, depression, PTSD/C-PTSD, and am easily overwhelmed by overly crowded spaces in game. Tagtones are not required but very appreciated especially if I don't know you!
 
@@ -11,7 +11,7 @@ Please talk to me about dilfs 👀 don't be afraid to goon, either. Seriously, I
 
 DNI ⤵ 
 
-Hard-core HH/HB fans. I'm hesitant on the show, my opinions are my own.
+Hard-core HH/HB fans. I like the show, but the fandom hasn't been very healthy in my experience. my opinions are my own.
 
 CoD fandom. I enjoy the characters and the storyline, but I don't want anything to do with you if you can't act like a decent person and filter your CoD personality.
 
